@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Gegagoestech.github.io/rsschool-cv/
